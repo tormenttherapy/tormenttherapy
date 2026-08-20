@@ -1,3 +1,3 @@
 burgr...
 
-<img src="https://klipy.com/gifs/alfred-f-jones-america-3" width="450px" align="center"></a>
+<img src="https://static2.klipy.com/ii/4493325008d34b7bf8cd6813cd5c1619/83/98/MG8CHnrLmLrkFlMPpn.gif" width="450px" align="center"></a>
